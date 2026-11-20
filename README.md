@@ -1,0 +1,1 @@
+# https-fredrock007.github.io-quaptureiq-site-terms-of-service.html
